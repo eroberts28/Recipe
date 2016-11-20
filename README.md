@@ -32,6 +32,9 @@
 7. Heat the oil in a large pan over medium heat. Preheat oven to 180°C.
 8. Fry the chicken until golden brown on both sides.
 9. Place ⅔ of the tomato sauce evenly on the bottom of a baking dish. Place the chicken on top.
+
+    ![1](https://cloud.githubusercontent.com/assets/22593770/20465116/012ef8f6-af4e-11e6-83cf-2c4635499f8c.jpg)
+
 10. Top with the rest of the tomato sauce, then sprinkle the parmesan and basil on top.
 11. Bake for 20 minutes.
 
