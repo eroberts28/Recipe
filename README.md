@@ -29,6 +29,6 @@
 10. Top with the rest of the tomato sauce, then sprinkle the parmesan and basil on top.
 11. Bake for 20 minutes.
 
-![1](https://cloud.githubusercontent.com/assets/22593770/20465054/8bdee6e8-af4c-11e6-889d-108b50085e24.jpg)
+    ![1](https://cloud.githubusercontent.com/assets/22593770/20465054/8bdee6e8-af4c-11e6-889d-108b50085e24.jpg)
 
 12. Serve!
