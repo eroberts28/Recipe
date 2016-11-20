@@ -42,6 +42,6 @@
 
 12. Serve!
 
-    ![1](https://cloud.githubusercontent.com/assets/22593770/20465127/4df6e270-af4e-11e6-8ec4-af34deaa8ed7.jpg)
+![1](https://cloud.githubusercontent.com/assets/22593770/20465127/4df6e270-af4e-11e6-8ec4-af34deaa8ed7.jpg)
     
 [Click here](https://www.buzzfeed.com/alvinzhou/prepare-yourself-for-complete-satisfaction-with-this-stuffed?bffbtasty&ref=bffbtasty&utm_term=.kpme8dVGr#.rwo6VWxAN) For the full video of how to make it!
