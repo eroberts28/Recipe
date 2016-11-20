@@ -19,6 +19,9 @@
 
 1. Cut a pocket into each chicken breast.
 2. Stuff the pockets evenly with the mozzarella cheese.
+
+    ![1](https://cloud.githubusercontent.com/assets/22593770/20465080/3777ae2c-af4d-11e6-9903-cd9799fffbd7.jpg)
+
 3. Press the edges of the chicken together to seal the pocket.
 4. Separate the flour, eggs, and bread crumbs into 3 separate bowls.
 5. Being careful to keep the chicken from opening, dip the stuffed chicken in the flour, shaking off the excess.
